@@ -1,1 +1,1 @@
-My first readme
+Determination, the key to success
